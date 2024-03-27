@@ -1,4 +1,4 @@
-![Uploading image.png…]()
+![image](https://github.com/Srinivasan2821/Industrial-Copper-Modeling/assets/154582529/74855a0e-4312-45c5-b4c3-71f0e5d11880)
 
 # INDUSTRIAL COPPER MODELING
 # _Project  By - Srinivasan P._
