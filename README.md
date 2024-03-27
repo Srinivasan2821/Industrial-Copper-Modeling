@@ -1,5 +1,6 @@
-![Uploading image.png…]()
+https://www.bhp.com/es/-/media/images/2017-prospects/171128_prospectscopperinourportfoliobanner.jpg?w=1200&hash=487152DF1C80FF3983814F9EB0334016
 
+![Uploading image.png…]()
 
 # INDUSTRIAL COPPER MODELING
 # _Project  By - Srinivasan P._
